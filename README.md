@@ -6,4 +6,4 @@ Baptiste
 Elise présidente !  
 Coralie Clot  
 C'est un Schtroumpf, il court, il court, il  tombe, il se fait un bleu ! haha !  
-C'est un gars il rentre dans un café... et plouf !
+C'est un gars il rentre dans un café... et plouf !  
